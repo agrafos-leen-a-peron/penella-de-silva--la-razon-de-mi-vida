@@ -515,19 +515,33 @@ Trata de indagar en la esencia de su forma de actuar.
 
 Leo en el original:
 > Para la mujer, la accion consiste en ejecutar aquello que pida se hecho desde el peusto en que el destino la haya colocado. Y ese hacer no es hacer eso o aquello, sino hacer de madre, de esposa, de hija.
+>
 > De otro modo, si fuese escuetamente lo que se cree, hace tiempo que las mujeres se habrian rebelado, o se estarian suicidando a racimos. Que hay cosas que no las aguanta nadie.
+> 
 > Y no cabe aquello de que la mujer tiene en el marido y en los hijos ciertas compensaciones. Eso es una salida por la tangente que no admite examen formal.
+> 
 > Estudiense esas compensaciones y se vera que consisten en una participacion indirecta y aleatoria en los premios conretos que otros disfrutan.
+> 
 > La unica seria compensacion de la mujer esta en ella misma. Es un producto de su fabricacion interna debido al juego de sus fuezas morales.
+> 
 > La mujer practica plenamente el verbo de su condicion con todas sus consecuencias esto es, tomando toda la tarea que vaya incluida en ese verbo, tal como se la presenta su destino, aunque sea desproporcionada.
+> 
 > Si sintiera como se cree, acabaria por desfallecer.
+> 
 > Precisamente es lo que le ocurre en sus justificadas crisis a cuyo vertigo se sobrepone, sobreponiendo su alta condicion de madre, esposa, hija o misionera social, a los tontos o duros o antipaticos "haceres" que aquella condicion lleva incluidos. Y no es que barra, friegue o que aguante esta o aquella carga inaguantable, sino que es madre, esposa, amiga o misionera.
+> 
 > Quiere decirse que la mujer no trabaja en el biblico sentido mas que cuando trabaja como hombre.
+> 
 > La palabra no debe ser la misma para un y otra cosa.
+> 
 > El hacer de la mujer es el hermano noble del trabajo varonil que se realiza porque se remunera o porque gusta.
+> 
 > En el hogar como en lo social no es diligente la mujer por el trabajo en si, porque le guste o porque vea premio. Y observese que hay quehaceres de la mujer que no pueden gustar aunque se hagan toda una vida, quehaceres mas aborrecibles cuanto mas se hagan, quehaceres duros, antipaticos, de rutina desesperante que nadie puede agradecer porque nadie advierte como no se para protestar cuando no estan hechos; quehaceres que apenas concluidos ya son anulados con obligada vuelta a empezar.
+> 
 > El especial sentido del deber innato en las mujeres es lo que les permite cumplir con disciplina voluntaria, que no ha conocido aun ni el mejor de los ejercitos, la monumental ofensiva del domestico quehacer.
+> 
 > No hay automatiscmo, no hay insconsciencia, no hay docilidad animal, ni tampoco hay cumplimiento del deber en el sentido vulgar.
+> 
 > El mundo esta tan acostumbrado al milagro diario de la mujer que ya cuenta siempre con el para resolver los imposibles a que da lugar su desgobierno.
 
 Por esa peculiar manera femenina de actuar, estaria la mujer ("ademas de las posibilidades de la zona que comparte con el hombre") especialmente capacitada para desempeñarse en los dominios del hogar y en los dominios de la accion social.
